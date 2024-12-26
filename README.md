@@ -4,4 +4,4 @@
   
 ![idk10](https://64.media.tumblr.com/ad5eaee7f197c2d7d56d07a8b2bfc908/7022dab1c46a2941-60/s75x75_c1/d581fa5884f3a1d374c6e70207ea26c31312fec6.gifv)
 
-[RENTRY](https://rentry.co/jevfhhf) - [PRONOUNSPAGE](https://ru.pronouns.page/@mizha)
+[RENTRY](https://rentry.co/lobiqee3) - [PRONOUNSPAGE](https://ru.pronouns.page/@mizha)
